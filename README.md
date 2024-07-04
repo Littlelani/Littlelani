@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Littlelani
+- 👀 I’m interested in gaming and making games on roblox
+- 🌱 I’m currently learning in 6th grade 
+- 💞️ I’m looking to collaborate on roblox hair and games!
+- 📫 a way to reach me is by searching up cupcakmarshfluff on roblox
+- 😄 Pronouns: they/them/she
+- ⚡ Fun fact: join my roblox group for facts about me!
+- 🙏be sure to check out the game im working on at roblox or donate to my group!
